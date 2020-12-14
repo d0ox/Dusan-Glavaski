@@ -1,2 +1,0 @@
-# Dusan-Glavaski
-Resume
